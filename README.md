@@ -12,7 +12,7 @@ About our flowers
 
 
 The most exquisite flowers and foliage each season.
-At Lotus Flowers we embrace each season and reflect them in our sublime hand tied posys and arrangements. Our shop is constantly filled with the freshest and most exquisite blooms and foliages, hand picked at the markets each day and delivered from exotic faraway places such as Mauritius, Thailand, Singapore and Africa.
+At Lotus Flowers we embrace each season and reflect them in our sublime hand tied posys and arrangements. Our shop is constantly filled with the freshest and most exquisite blooms and foliages, hand picked at the markets each day and delivered from exotic faraway places such as India, Mauritius, Thailand, Singapore and Africa.
 
 During the winter months the shop is filled with beautifully scented Freesias and Hyacinths, as well as unusual Parrot Tulips, lush Magnolia foliage, berries and bare branches.
 

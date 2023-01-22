@@ -27,7 +27,7 @@ We welcome you to visit us and discover our flower secrets.
 
 Security
 
-Our website uses SSL (lotusflowershop.qnetau.com). When placing an order, your details are collected by a secure server using 128-bit SSL encryption, which means all of your personal information is encrypted to protect your details from fraud.
+Our website uses SSL cert. When placing an order, your details are collected by a secure server using 128-bit SSL encryption, which means all of your personal information is encrypted to protect your details from fraud.
 
 We do not process your credit card details online. We collect your details and process your order via a eftpos machine in our shop. If you are not comfortable sending your credit card details in the order form please phone or come into the shop during business hours to provide your card details.
 

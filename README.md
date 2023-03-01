@@ -1,34 +1,26 @@
 ![flower-156608_1280](https://user-images.githubusercontent.com/123225727/213980519-51c0f373-2f71-4554-909a-b9092649f60c.png)
-At Indiaflower, we believe it is very important to understand and get to know you, our customer.
-
-We cater to all tastes, from elegant bouquets to edgy arrangements. 
-
-Our consultants spend time with you to ensure that you leave with flowers that surpass all of your expectations.
-
-Online Deliveries available.
+ 
+10 Things To Know About Queer Identified People
 
 
-About our flowers
 
+We are with you all the way!
 
-The most exquisite flowers and foliage each season.
-At Lotus Flowers we embrace each season and reflect them in our sublime hand tied posys and arrangements. Our shop is constantly filled with the freshest and most exquisite blooms and foliages, hand picked at the markets each day and delivered from exotic faraway places such as India, Mauritius, Thailand, Singapore and Africa.
+We are born gay, lesbian or bisexual; our only choice is how we will live our lives.
 
-During the winter months the shop is filled with beautifully scented Freesias and Hyacinths, as well as unusual Parrot Tulips, lush Magnolia foliage, berries and bare branches.
+We are everywhere - in every culture, country, and religion.
 
-As Spring approaches, so to does the much awaited Peony season, bringing with it the most romantic of blooms. Delicate feminine flowers including the divine Lily of the Valley and dreamy Gardenias are also on show in store during this time.
+We are in every profession -teaching, military, business, music, police, medicine, sports ...
 
-The warmer months represent an expolsion of colour in the forms of old fashioned favourites, David Austin Roses, Hydrangea, Tuberrose, and the ever constant Oriental Lily.
+We are single, we are married, we are childless, and we have children.
 
-Each Lotus Flowers arrangement and bouquet is finished with premium hand embossed papers, satin ribbons and exotic Lotus leaves.
+We are from every socio-economic and racial background.
 
-We welcome you to visit us and discover our flower secrets.
+We are your neighbors, fellow workers, friends and family.
 
+We are protected by the Canadian Charter of Rights and Freedoms and the Quebec Charter of Human Rights and Freedoms. We are all affected by homophobia, our own and that of others.
 
-Security
+We are proud and unique.
 
-Our website uses SSL cert. When placing an order, your details are collected by a secure server using 128-bit SSL encryption, which means all of your personal information is encrypted to protect your details from fraud.
-
-We do not process your credit card details online. We collect your details and process your order via a eftpos machine in our shop. If you are not comfortable sending your credit card details in the order form please phone or come into the shop during business hours to provide your card details.
-
+We are different and that diversity is something to be celebrated.
 

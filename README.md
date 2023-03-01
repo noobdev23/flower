@@ -6,7 +6,7 @@
 
 We are with you all the way!
 
-We are born gay, lesbian or bisexual; our only choice is how we will live our lives.
+We are trans, gay, lesbian or bisexual; our only choice is how we will live our lives.
 
 We are everywhere - in every culture, country, and religion.
 
@@ -18,9 +18,11 @@ We are from every socio-economic and racial background.
 
 We are your neighbors, fellow workers, friends and family.
 
-We are protected by the Canadian Charter of Rights and Freedoms and the Quebec Charter of Human Rights and Freedoms. We are all affected by homophobia, our own and that of others.
 
 We are proud and unique.
 
 We are different and that diversity is something to be celebrated.
 
+
+
+AUTHOR: Ronit

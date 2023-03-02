@@ -24,5 +24,15 @@ We are proud and unique.
 We are different and that diversity is something to be celebrated.
 
 
+For Parents, Families and Friends
+
+
+If you're here on this page, it's likely that someone close to you has just come out. This can be a somewhat confusing time and you may have mixed feelings as you try to wrap your head around the news and figure out how to move forward in a positive way. This person you care about has trusted you with very personal information about him or herself and hopes that you will respect that trust. Coming out means risking rejection and even the loss of support from family and friends who may not react in an understanding way. You may feel uncomfortable and not know how to react. The best thing you can do is to listen, talk, and listen - open and honest conversation is a vital part of coming out and will help to move your relationship toward a point of mutual understanding and acceptance.
+
+Take some time to learn more about what it is to be gay, lesbian, bisexual, or transsexual in today's world. There is very well-written information on lgbtq websites for parents and families of people who have just come out. 
+
+We're continually updating our web site. If you find good information for parents, families and friends you feel should be included, please share.
+
+
 
 AUTHOR: Ronit
